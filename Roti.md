@@ -1,6 +1,6 @@
 # Roti
 active: 20
-inactive: 10
+inactive: 40
 [source](https://basicswithbabish.co/basicsepisodes/indianbreads)
 ## Ingredients
 * Whole wheat flour

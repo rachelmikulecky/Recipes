@@ -1,5 +1,5 @@
 # Apple Pie
-active: 30
+active: 60
 inactive: 60
 source: Grandma Ople
 ## Ingredients

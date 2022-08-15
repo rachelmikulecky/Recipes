@@ -46,8 +46,8 @@ Gyoza:
 4. Add minced garlic and grated ginger to the bowl.
 5. Add the seasonings (1 tsp sesame oil, 1 tsp soy sauce, ¼ tsp kosher salt, 1 tsp sake, and freshly ground black pepper).
 6. Mix well and knead the mixture with hand until it becomes pale in color and sticky.
-7. Take a wrapper and place it in the palm of your non-dominant hand. Use a teaspoon to take a small amount of filling and put it in the center of the wrapper. Dip one finger in a bowl of water and draw a circle around the outer ¼” of the wrapper with your wet finger until it’s wet all around.
-8. Fold the wrapper in half over the filling and pinch it in the center with your fingers (but don’t seal yet!). Using your thumb and index finger, start making a pleat about once every ¼“ on the top part of the wrapper from the center toward the right. As you fold each pleat, press the folded pleat tightly against the back part of wrapper using your other thumb and index finger. Make 3-4 pleats.
+7. Take a wrapper and place it in the palm of your non-dominant hand. Use a teaspoon to take a small amount of filling and put it in the center of the wrapper. Dip one finger in a bowl of water and draw a circle around the outer ¼" of the wrapper with your wet finger until it's wet all around.
+8. Fold the wrapper in half over the filling and pinch it in the center with your fingers (but don't seal yet!). Using your thumb and index finger, start making a pleat about once every ¼" on the top part of the wrapper from the center toward the right. As you fold each pleat, press the folded pleat tightly against the back part of wrapper using your other thumb and index finger. Make 3-4 pleats.
 9. Heat the oil in a large non-stick frying pan over medium high heat. When the pan is hot, place the gyoza in a single layer, flat side down (in two rows or in a circular shape).
 10. Cook until the bottom of the gyoza turns golden brown, about 3 minutes.
 11. Add ¼ cup of water to the pan. Immediately cover with a lid and steam the gyoza for about 3 minutes or until most of the water evaporates.
@@ -62,11 +62,11 @@ Gyoza Wrapper:
 3. Add the just-boiled water into the flour little by little, stirring with a rubber spatula. You will eventually need to use your hands to form the dough into a ball. If the flour is still separated, add 1/2 Tbsp. water at a time till you can form the texture into a ball.
 4. Transfer the dough to the work surface and knead the dough for 10 minutes.
 5. After 10 minutes, the texture of the dough will be much smoother. Cut the dough in half.
-6. Shape each half into a long log, about 1½ inches in diameter (it doesn't have to be perfect if you’re going to use a cookie cutter later). Wrap each log with plastic wrap. Let it sit for 30 minutes.
-7. Unwrap the dough. Sprinkle a little potato starch on the work surface and cut each log crosswise into about 12 pieces (may vary depending on the log length and width). Since we’ll be using a cookie cutter, don’t worry if each piece of dough has slightly different size.
+6. Shape each half into a long log, about 1½ inches in diameter (it doesn't have to be perfect if you're going to use a cookie cutter later). Wrap each log with plastic wrap. Let it sit for 30 minutes.
+7. Unwrap the dough. Sprinkle a little potato starch on the work surface and cut each log crosswise into about 12 pieces (may vary depending on the log length and width). Since we'll be using a cookie cutter, don't worry if each piece of dough has slightly different size.
 8. Cover the dough with damp kitchen towel at all time to prevent from drying.
 9. For each piece of dough into a ball shape.
 10. Press the ball onto the work surface.
 11. Using a rolling pin, roll out the dough, but DO NOT roll out (flatten) the TOP and BOTTOM edge. This is a trick to make a nice round shape.
 12. Rotate the dough 90 degrees and repeat rolling the dough to make a nice round shape. Try to roll out the dough to a thin circle.
-13. Sprinkle each wrapper with potato starch and stack the gyoza wrappers. Make sure to the wrappers covered with damp kitchen towel. Once all the dough is used, wrap the gyoza wrappers with plastic wrap and freeze or refrigerate until you’re ready to use. You can keep gyoza wrappers for about 3-4 days in the refrigerator and up to a month in freezer. Defrost in the refrigerator prior to use.
+13. Sprinkle each wrapper with potato starch and stack the gyoza wrappers. Make sure to the wrappers covered with damp kitchen towel. Once all the dough is used, wrap the gyoza wrappers with plastic wrap and freeze or refrigerate until you're ready to use. You can keep gyoza wrappers for about 3-4 days in the refrigerator and up to a month in freezer. Defrost in the refrigerator prior to use.

@@ -29,7 +29,7 @@ Sauce:
 5. In a high-walled frying pan or skillet, place lard and vegetable oil. Heat over medium-high heat and bring it to 325°F.
 6. Gently lay the chicken pieces into the oil - making sure to place them going away from you to ensure no self-splattering. Fry for 5-7 minutes per side, or until deeply golden brown and crisp. Thinner chicken slices will likely cook through in this time - larger slices will need to be put in the oven.
 7. Place on a wire rack set in a rimmed baking sheet and keep in a 325°F oven until they are thoroughly cooked through.
-8. Generously brush down both sides of the chicken with the spice oil. If applied while the oil and the chicken are still hot, it’s going to absorb into the crust without making it soggy.
+8. Generously brush down both sides of the chicken with the spice oil. If applied while the oil and the chicken are still hot, it's going to absorb into the crust without making it soggy.
 9. For the proper Nashville style, place on a piece of Wonder bread topped with pickle chips.
 
 Sauce:

@@ -1,7 +1,7 @@
 # Hobbit Hand Pies
 active: 45
 inactive: 4500
-source: Burdette and Mia’s cookbook
+source: Burdette and Mia's cookbook
 ## Ingredients
 
 Filling:

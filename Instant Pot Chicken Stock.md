@@ -4,7 +4,7 @@ inactive: 60
 [source](https://www.bonappetit.com/recipe/instant-pot-chicken-stock)
 ## Ingredients
 * 3 lb. chicken wings or chicken bones
-* 1 large carrot (6–8 oz.), scrubbed, halved
+* 1 large carrot (6-8 oz.), scrubbed, halved
 * 1 large onion, unpeeled, halved
 * 1 head of garlic, halved crosswise
 * 1 1" piece ginger, unpeeled, halved (optional)

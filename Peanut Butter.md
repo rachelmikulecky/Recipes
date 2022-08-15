@@ -1,7 +1,7 @@
 # Peanut Butter
 active: 15
 inactive: 20
-source: Durham’s Spanish Peanuts 
+source: Durham's Spanish Peanuts 
 ## Ingredients
 * 1 cup peanuts, oven roasted
 * 1 teaspoon honey

@@ -9,7 +9,7 @@ inactive: 135
 * 1 large egg
 * 3 tablespoons butter, melted
 * 3 tablespoons white sugar
-* 1 ?1/4 teaspoons salt
+* 1 1/4 teaspoons salt
 * 1 teaspoon olive oil
 * 1 egg, beaten
 * 1 tablespoon milk
